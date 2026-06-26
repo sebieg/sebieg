@@ -1,1 +1,1 @@
-deltaurne sesbian lex!!!!!
+I say gex, and sesbian is a lex 😍😍😍😍😍
